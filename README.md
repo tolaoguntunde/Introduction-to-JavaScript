@@ -5,11 +5,11 @@
 
 **Ingredients** 
 
-3cups of vegetable oil
+3 cups of vegetable oil
 
 1/2 teaspoon of salt
 
-I teaspoon of yeast
+1 teaspoon of yeast
 
 300ml of flour
 
@@ -17,7 +17,7 @@ I teaspoon of yeast
 
 5 tablespoons of sugar
 
-1cup of warm water 
+1 cup of warm water 
 
 **Other items needed**
 
