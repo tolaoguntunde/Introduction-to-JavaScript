@@ -16,6 +16,7 @@ I teaspoon of yeast
 1/2 teaspoon of cinnamon powder or nutmeg powder
 
 5 tablespoons of sugar
+
 1cup of warm water 
 
 **Other items needed**
